@@ -1,4 +1,3 @@
-# Oracle
 **343 Guilty Spark**
 
 
