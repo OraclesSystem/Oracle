@@ -27,6 +27,7 @@ Other names:
 
 
 
-![tumblr_dbd6edcae47a2598147ed36f7e439a2e_0d07af87_540](https://github.com/user-attachments/assets/dc84787d-4406-4fb2-84c7-322a7c5ca63c)
+![tumblr_02f637b0b8d3cfd2f5c84a5faefe9880_df0646f2_540](https://github.com/user-attachments/assets/418a21b0-499c-47e6-83cf-2bd7c8c9b7fc)
+
 
 
