@@ -1,14 +1,14 @@
 # Oracle System
-**343 Guilty Spark**
+**Ultra Magnus**
 
 
-**`It is awake because you are here. You are here because it is awake. What is it? It's been down there all this time, waiting to meet you. In the dark.`**
+**` "People don't like me... They just laugh at my jokes. There's a difference".`**
 
-**`Greetings. I am the Monitor of Installation 04. I am 343 Guilty Spark`**
+**`I can't deal with that right now!`**
 
-**'Unacceptable! Unacceptable! Absolutely unacceptable!'**
+**`In my book, one compromise leads to another... and another... and pretty soon... you've crossed the line you're supposed to be holding.`**
 
-**Oracle**
+**Ultra Magnus**
 
 Tʜᴇʏ/Tʜᴇᴍ
 
@@ -18,16 +18,19 @@ Osᴅᴅ-1ʙ - Hᴏsᴛ ᴏғ ⁴ Aʟᴛᴇʀs
 
 Pʟᴇᴀsᴇ ᴅᴏɴ'ᴛ ᴄᴏᴘʏ ᴀɴʏ ᴏғ ᴏᴜʀ sᴋɪɴs. Iɴsᴛᴇᴀᴅ ᴀsᴋ ғᴏʀ ɪɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢᴇ ᴜs.
 
+Please use Tone Tags!! or use stuff like this [Ex]: /Silly - /Gen - /Annoyed.
+
 Other names:
 
-**Oracle / 343 / Guilty Spark / Lᴏᴄᴀʟ**
+**Magnus / Mag / Ultra Magnus / Lᴏᴄᴀʟ**
 
 
 
 
 
 
-![tumblr_02f637b0b8d3cfd2f5c84a5faefe9880_df0646f2_540](https://github.com/user-attachments/assets/418a21b0-499c-47e6-83cf-2bd7c8c9b7fc)
+![transformers skybound - issue 20](https://github.com/user-attachments/assets/3da3f8b4-c02d-4280-8285-0da99d6a74ef)
+
 
 
 
