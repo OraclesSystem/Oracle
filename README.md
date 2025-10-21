@@ -1,4 +1,4 @@
-# Oracle System
+# magnus system
 **Ultra Magnus**
 
 
