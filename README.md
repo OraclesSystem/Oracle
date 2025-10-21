@@ -1,7 +1,6 @@
 # magnus system
 **Ultra Magnus**
 
-Look at all of the links in my Bio Please and sign my Ata if you want !! 
 
 **` "People don't like me... They just laugh at my jokes. There's a difference".`**
 
@@ -20,6 +19,8 @@ Osᴅᴅ-1ʙ - Hᴏsᴛ ᴏғ ⁴ Aʟᴛᴇʀs
 Pʟᴇᴀsᴇ ᴅᴏɴ'ᴛ ᴄᴏᴘʏ ᴀɴʏ ᴏғ ᴏᴜʀ sᴋɪɴs. Iɴsᴛᴇᴀᴅ ᴀsᴋ ғᴏʀ ɪɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢᴇ ᴜs.
 
 Please use Tone Tags!! or use stuff like this [Ex]: /Silly - /Gen - /Annoyed.
+
+Look at all of the links in my Bio Please and sign my Ata if you want !! 
 
 Other names:
 
