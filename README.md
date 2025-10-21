@@ -1,6 +1,7 @@
 # magnus system
 **Ultra Magnus**
 
+Look at all of the links in my Bio Please and sign my Ata if you want !! 
 
 **` "People don't like me... They just laugh at my jokes. There's a difference".`**
 
