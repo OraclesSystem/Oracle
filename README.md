@@ -1,37 +1,38 @@
 # magnus system
-**Ultra Magnus**
+**Nikto**
 
 
-**` "People don't like me... They just laugh at my jokes. There's a difference".`**
+**`"We're good"`**
 
-**`I can't deal with that right now!`**
+**`"No one messes with our friends and lives"`**
 
-**`In my book, one compromise leads to another... and another... and pretty soon... you've crossed the line you're supposed to be holding.`**
+**`"Let's keep it simple. Just kill them all."`**
 
-**Ultra Magnus**
+**Nikto/Igor Vasilyevich Yurievich**
 
 Tʜᴇʏ/Tʜᴇᴍ
 
-Bᴏᴅɪʟʏ --
+Bᴏᴅɪʟʏ ¹³
 
 Osᴅᴅ-1ʙ - Hᴏsᴛ ᴏғ ⁴ Aʟᴛᴇʀs
 
-Pʟᴇᴀsᴇ ᴅᴏɴ'ᴛ ᴄᴏᴘʏ ᴀɴʏ ᴏғ ᴏᴜʀ sᴋɪɴs. Iɴsᴛᴇᴀᴅ ᴀsᴋ ғᴏʀ ɪɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢᴇ ᴜs.
+ᴅᴏɴ'ᴛ ᴄᴏᴘʏ sᴋɪɴs. ᴀsᴋ ғᴏʀ ɪɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢᴇ ᴜs.
 
-Please use Tone Tags!! or use stuff like this [Ex]: /Silly - /Gen - /Annoyed.
+Use Tone Tags around us.
 
-Look at all of the links in my Bio Please and sign my Ata if you want !! 
+Click on links in bio, sign ata. Thank you.
 
 Other names:
 
-**Magnus / Mag / Ultra Magnus / Lᴏᴄᴀʟ**
+**Nikto / Igor / Lᴏᴄᴀʟ**
 
 
 
 
 
 
-![1de55eb1-7862-4f0a-bd60-6c5babdfd40c](https://github.com/user-attachments/assets/5f6b6be4-c439-4a28-af0e-f679c9f0316e)
+![063cf965-9ef4-4e11-a38e-7c8226cb13b9](https://github.com/user-attachments/assets/fad4f9fd-4f4a-4bf3-af1b-6a192bd3aa4b)
+
 
 
 
