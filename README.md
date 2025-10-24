@@ -55,40 +55,12 @@ dni: dont rlly have one,, jst block freely
 remember jst bc you see someone sitting where you don't like doesnt mean they like the same stuff as that person..
 
 -------------------------------------------------------------------------------------------------------------------
-I'ma tell you what a bird told me
+`Put your weight up on me, heavy love
 
-The code to your gate is 9-9-3
+(Ah-ah, ooh, ah-ah, ooh, ah-ah)
 
-I'ma tell you what a bird told me
+Put your weight up on me, heavy love
 
-You leave your house at 10:15
+(Ah-ah, ooh, ah-ah, ooh, ah-ah)`
 
-Used the pic of your kitchen, found your place on Zillow
-
-Really-really love those bright-green pillows
-
-Chase Bank called, there's some debt that you still owe
-
-Clean those dishes, you should use that Brillo
-
-
-I'ma tell you what a bird told me
-I'ma tell you what a bird told me
-I'ma tell you what a bird told me
-I'ma tell you what a bird told—
-
-
-I'm in your house bitch, I'm in your house (Knock knock)
-I'm in your house bitch, I'm in your house (Knock knock)
-I'm in your house bitch, I'm in your house (Knock knock)
-I'm in your housе bitch, I'm in your house (Knock knock)
-
-Song: BNE by 1-800 Pain
-
-(I have less compassion than thе average human)
-
-
-
-
-
-
+Heavy Love : Odetari 
