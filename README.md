@@ -55,30 +55,37 @@ dni: dont rlly have one,, jst block freely
 remember jst bc you see someone sitting where you don't like doesnt mean they like the same stuff as that person..
 
 -------------------------------------------------------------------------------------------------------------------
+I'ma tell you what a bird told me
 
-`~What'll I do? What'll I do?
+The code to your gate is 9-9-3
 
-What an unusual view!
+I'ma tell you what a bird told me
 
-I can stand the sight of worms
+You leave your house at 10:15
 
-And look at microscopic germs
+Used the pic of your kitchen, found your place on Zillow
 
-But technicolor pachyderms
+Really-really love those bright-green pillows
 
-Is really too much for me
+Chase Bank called, there's some debt that you still owe
 
-Ahahahaha!
+Clean those dishes, you should use that Brillo
 
-I am not the type to faint!
 
-When things are odd or things are quaint
+I'ma tell you what a bird told me
+I'ma tell you what a bird told me
+I'ma tell you what a bird told me
+I'ma tell you what a bird told—
 
-But seeing things you know that ain't
 
-Can certainly give you an awful fright!
+I'm in your house bitch, I'm in your house (Knock knock)
+I'm in your house bitch, I'm in your house (Knock knock)
+I'm in your house bitch, I'm in your house (Knock knock)
+I'm in your housе bitch, I'm in your house (Knock knock)
 
-What a sight!~`
+Song: BNE by 1-800 Pain
+
+(I have less compassion than thе average human)
 
 
 
