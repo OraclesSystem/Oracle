@@ -1,6 +1,7 @@
 # magnus system
 **nikto**
 
+**fictionkin of nikto**
 
 **`"We're good"`**
 
@@ -40,7 +41,7 @@ disorders: social anxiety, depression, intermittent explosive disorder, phonopho
 
 due to my social anxiety i would prefer if you int first, if i don't know you well and i type rudely please forgive me in advance, that rude typing is a cover up for fear..
 
-anti-harassment and anti-bullying.. 
+anti-harassment and anti-bullying.. (personal reasons)
 
 
 do not go after any of my friends,, we will not hesitate to lash out..
@@ -51,6 +52,22 @@ int: gore lovers/violence lovers, transformers, halo, rvb, cod fans, fellow syst
 dni: dont rlly have one,, jst block freely
 
 
+remember jst bc you see someone sitting where you don't like doesnt mean they like the same stuff as that person..
+
+-------------------------------------------------------------------------------------------------------------------
+
+`~What'll I do? What'll I do?
+What an unusual view!
+I can stand the sight of worms
+And look at microscopic germs
+But technicolor pachyderms
+Is really too much for me
+Ahahahaha!
+I am not the type to faint!
+When things are odd or things are quaint
+But seeing things you know that ain't
+Can certainly give you an awful fright!
+What a sight!~`
 
 
 
