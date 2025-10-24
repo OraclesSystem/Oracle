@@ -1,8 +1,10 @@
 # magnus system
 **nikto**
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 **fictionkin of nikto**
 
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 **`"We're good"`**
 
 **`"No one messes with our friends and lives"`**
@@ -27,6 +29,7 @@ other names:
 
 **nikto / igor / loᴄᴀʟ <-- only if close**
 
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
 
@@ -36,7 +39,7 @@ other names:
 
 
 
-
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 disorders: social anxiety, depression, intermittent explosive disorder, phonophobia, hyperacusis, adhd, dyslexia, selective muteness, ptsd.. (many of these are dionosged by a professional..)
 
 due to my social anxiety i would prefer if you int first, if i don't know you well and i type rudely please forgive me in advance, that rude typing is a cover up for fear..
@@ -54,13 +57,4 @@ dni: dont rlly have one,, jst block freely
 
 remember jst bc you see someone sitting where you don't like doesnt mean they like the same stuff as that person..
 
--------------------------------------------------------------------------------------------------------------------
-`Put your weight up on me, heavy love
-
-(Ah-ah, ooh, ah-ah, ooh, ah-ah)
-
-Put your weight up on me, heavy love
-
-(Ah-ah, ooh, ah-ah, ooh, ah-ah)`
-
-Heavy Love : Odetari 
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
