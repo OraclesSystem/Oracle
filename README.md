@@ -57,16 +57,27 @@ remember jst bc you see someone sitting where you don't like doesnt mean they li
 -------------------------------------------------------------------------------------------------------------------
 
 `~What'll I do? What'll I do?
+
 What an unusual view!
+
 I can stand the sight of worms
+
 And look at microscopic germs
+
 But technicolor pachyderms
+
 Is really too much for me
+
 Ahahahaha!
+
 I am not the type to faint!
+
 When things are odd or things are quaint
+
 But seeing things you know that ain't
+
 Can certainly give you an awful fright!
+
 What a sight!~`
 
 
