@@ -1,30 +1,30 @@
 # magnus system
-**Nikto**
+**nikto**
 
 
 **`"We're good"`**
 
 **`"No one messes with our friends and lives"`**
 
-**`"Let's keep it simple. Just kill them all."`**
+**`"let's keep it simple. just kill them all."`**
 
-**Nikto/Igor Vasilyevich Yurievich**
+**nikto/igor vasilyevich yurievich**
 
-Tʜᴇʏ/Tʜᴇᴍ
+tʜᴇʏ/tʜᴇᴍ
 
-Bᴏᴅɪʟʏ ¹³
+bᴏᴅɪʟʏ ¹³
 
-Osᴅᴅ-1ʙ - Hᴏsᴛ ᴏғ ⁴ Aʟᴛᴇʀs
+osᴅᴅ-1ʙ - hᴏsᴛ ᴏғ ⁴ aʟᴛᴇʀs
 
-ᴅᴏɴ'ᴛ ᴄᴏᴘʏ sᴋɪɴs. ᴀsᴋ ғᴏʀ ɪɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢᴇ ᴜs.
+dᴏɴ'ᴛ ᴄᴏᴘʏ sᴋɪɴs. ᴀsᴋ ғᴏʀ iɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢᴇ ᴜs.
 
-Use Tone Tags around us.
+use tone tags around us, please.
 
-Click on links in bio, sign ata. Thank you.
+click on links in bio, sign ata. thank you.
 
-Other names:
+other names:
 
-**Nikto / Igor / Lᴏᴄᴀʟ**
+**nikto / igor / loᴄᴀʟ <-- only if close**
 
 
 
@@ -32,6 +32,25 @@ Other names:
 
 
 ![063cf965-9ef4-4e11-a38e-7c8226cb13b9](https://github.com/user-attachments/assets/fad4f9fd-4f4a-4bf3-af1b-6a192bd3aa4b)
+
+
+
+
+disorders: social anxiety, depression, intermittent explosive disorder, phonophobia, hyperacusis, adhd, dyslexia, selective muteness, ptsd.. (many of these are dionosged by a professional..)
+
+due to my social anxiety i would prefer if you int first, if i don't know you well and i type rudely please forgive me in advance, that rude typing is a cover up for fear..
+
+anti-harassment and anti-bullying.. 
+
+
+do not go after any of my friends,, we will not hesitate to lash out..
+
+
+int: gore lovers/violence lovers, transformers, halo, rvb, cod fans, fellow systems, anyone rlly , jst be nice
+
+dni: dont rlly have one,, jst block freely
+
+
 
 
 
