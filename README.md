@@ -55,6 +55,6 @@ int: gore lovers/violence lovers, transformers, halo, rvb, cod fans, fellow syst
 dni: dont rlly have one,, jst block freely
 
 
-remember jst bc you see someone sitting where you don't like doesnt mean they like the same stuff as that person..
+may run or hide in stressful/scary situations or if overstimulated.
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
