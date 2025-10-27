@@ -2,7 +2,7 @@
 **nikto**
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-**fictionkin of nikto - following all krueger's we see. hes our internal headspace lover**
+**fictionkin of nikto**
 
 𖦏
 
@@ -60,7 +60,7 @@ other names:
 
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-disorders: social anxiety, depression, intermittent explosive disorder, phonophobia, hyperacusis, adhd, dyslexia, selective muteness, ptsd.. (many of these are dionosged by a professional..)
+disorders: social anxiety, depression, intermittent explosive disorder, adhd, dyslexia, selective muteness, ptsd.. (many of these are dionosged by a professional..)
 
 𖦏
 
@@ -76,11 +76,11 @@ do not go after any of my friends/family,, we will not hesitate to lash out..
 
 𖦏
 
-int: gore lovers/violence lovers, transformers, halo, rvb, cod fans, car lovers, motocylcle lovers, gun/melee lovers, fellow systems, anyone rlly , jst be nice
+int: gore lovers/violence lovers, transformers, halo, rvb, cod fans, car lovers, motocylcle lovers, gun lovers, fellow systems, anyone rlly , jst be nice
 
 𖦏
 
-be warned. we have a tendancy to curse alot, we are also very violent in and out of the mind and will not act on anything of course.. be warned to not vent to us, sadly we lack empathy and are apatehtic. we also are desensitization to violence. be warned, if you are being rude/agressive we will return it. voilence does not affect us.
+be warned. we have a tendancy to curse alot, we are also very violent in and out of the mind and will not act on anything of course.. be warned to not vent to us, sadly we lack empathy and are apatehtic. we also are desensitization to violence. be warned, if you are being rude/agressive we will return it. violence does not affect us.
 
 𖦏
 
@@ -88,7 +88,7 @@ dni: dont rlly have one,, jst block freely
 
 𖦏
 
-may run or hide in stressful/scary situations or if overstimulated.
+may run or hide in stressful/triggering situations or if overstimulated.
 
 𖦏
 
