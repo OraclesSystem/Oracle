@@ -68,6 +68,10 @@ due to my social anxiety i would prefer if you int first, if i don't know you we
 
 𖦏
 
+be warned. we are extremely clingy/cuddly.
+
+𖦏
+
 do not go after any of my friends/family,, we will not hesitate to lash out..
 
 𖦏
