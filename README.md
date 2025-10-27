@@ -45,7 +45,7 @@ click on links in bio, sign ata. thank you.
 
 other names:
 
-**nikto / igor / loᴄᴀʟ <-- only if close (People mentioned in my bio can call us this or if i say you can ^^)**
+**nikto / igor / loᴄᴀʟ <-- only if close (People mentioned in our bio can call us this or if we say you can ^^)**
 
 𖦏
 
