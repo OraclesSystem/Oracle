@@ -3,7 +3,7 @@
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-<img width="913" height="613" alt="Screenshot 2025-10-27 200245" src="https://github.com/user-attachments/assets/683e173e-adc6-4356-9cd6-ad56a0c1800c" />
+<img width="620" height="612" alt="Screenshot 2025-10-24 141635" src="https://github.com/user-attachments/assets/34c11c67-1192-419e-92dc-79a07cc09283" />
 
 
 
@@ -13,8 +13,23 @@ other names:
 
 **nikto / igor / loᴄᴀʟ / igor vasilyevich yurievich**
 
+𖦏 
 
-𖦏 Made by us. We are open to making custom overlays for others ^^. If you want to request please do it on our ata or send us a message on Strawpage
+bodily 13
+
+𖦏 
+
+they/them [pronous flexiable] 
+
+𖦏 
+
+use tone tags.
+
+𖦏 
+
+fictionkin of nikto
+
+𖦏 
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 **`"We're good"`**
