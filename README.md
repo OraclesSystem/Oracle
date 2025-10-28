@@ -19,23 +19,12 @@
 
 𖦏
 
-tʜᴇʏ/tʜᴇᴍ [pronoun-flexible]
-
-𖦏
-
-bᴏᴅɪʟʏ ¹³
-
-𖦏
-
 osᴅᴅ-1ʙ - hᴏsᴛ ᴏғ ⁴ aʟᴛᴇʀs
 
 𖦏
 
 dᴏɴ'ᴛ ᴄᴏᴘʏ sᴋɪɴs. ᴀsᴋ ғᴏʀ iɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢᴇ ᴜs.
 
-𖦏
-
-use tone tags around us, comrade(s).
 
 𖦏
 
@@ -54,8 +43,7 @@ other names:
 
 
 
-
-![063cf965-9ef4-4e11-a38e-7c8226cb13b9](https://github.com/user-attachments/assets/fad4f9fd-4f4a-4bf3-af1b-6a192bd3aa4b)
+<img width="913" height="613" alt="Screenshot 2025-10-27 200245" src="https://github.com/user-attachments/assets/683e173e-adc6-4356-9cd6-ad56a0c1800c" />
 
 
 
