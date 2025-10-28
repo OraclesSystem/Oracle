@@ -2,9 +2,12 @@
 **nikto**
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-**fictionkin of nikto**
 
-𖦏
+<img width="913" height="613" alt="Screenshot 2025-10-27 200245" src="https://github.com/user-attachments/assets/683e173e-adc6-4356-9cd6-ad56a0c1800c" />
+
+
+
+𖦏 Made by us. We are open to making custom overlays for others ^^. If you want to request please do it on our ata or send us a message on Strawpage
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 **`"We're good"`**
@@ -38,21 +41,6 @@ other names:
 
 𖦏
 
-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-
-
-
-<img width="913" height="613" alt="Screenshot 2025-10-27 200245" src="https://github.com/user-attachments/assets/683e173e-adc6-4356-9cd6-ad56a0c1800c" />
-
-
-
-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-Made by us. We are open to making custom overlays for others ^^.
-
-𖦏
-
-<summary>{{Disorders}}$</summary> 
 disorders: social anxiety, depression, intermittent explosive disorder, adhd, dyslexia, selective muteness, ptsd.. (many of these are dionosged by a professional..)
 
 𖦏
