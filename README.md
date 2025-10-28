@@ -48,6 +48,10 @@ other names:
 
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+Made by us. We are open to making custom overlays for others ^^.
+
+𖦏
+
 disorders: social anxiety, depression, intermittent explosive disorder, adhd, dyslexia, selective muteness, ptsd.. (many of these are dionosged by a professional..)
 
 𖦏
