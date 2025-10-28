@@ -11,7 +11,7 @@
 
 other names:
 
-**nikto / igor / loᴄᴀʟ <-- only if close (People mentioned in our bio can call us this or if we say you can ^^)**
+**nikto / igor / loᴄᴀʟ / igor vasilyevich yurievich**
 
 
 𖦏 Made by us. We are open to making custom overlays for others ^^. If you want to request please do it on our ata or send us a message on Strawpage
@@ -22,10 +22,6 @@ other names:
 **`"No one messes with our friends and lives"`**
 
 **`"let's keep it simple. just kill them all."`**
-
-𖦏
-
-**nikto/igor vasilyevich yurievich**
 
 𖦏
 
