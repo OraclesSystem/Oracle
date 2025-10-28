@@ -7,6 +7,13 @@
 
 
 
+𖦏 
+
+other names:
+
+**nikto / igor / loᴄᴀʟ <-- only if close (People mentioned in our bio can call us this or if we say you can ^^)**
+
+
 𖦏 Made by us. We are open to making custom overlays for others ^^. If you want to request please do it on our ata or send us a message on Strawpage
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
@@ -32,12 +39,6 @@ dᴏɴ'ᴛ ᴄᴏᴘʏ sᴋɪɴs. ᴀsᴋ ғᴏʀ iɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢ
 𖦏
 
 click on links in bio, sign ata. thank you.
-
-𖦏
-
-other names:
-
-**nikto / igor / loᴄᴀʟ <-- only if close (People mentioned in our bio can call us this or if we say you can ^^)**
 
 𖦏
 
