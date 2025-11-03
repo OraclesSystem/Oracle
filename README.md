@@ -56,7 +56,7 @@ do not go after any of my friends/family,, we will not hesitate to lash out..
 
 𖦏
 
-int: gore lovers/violence lovers, transformers, halo, rvb, cod fans, rainbow 6 siege fans, or jst anyone,,
+int: anyone rlly ! jst be nice and respectful.
 
 𖦏
 
