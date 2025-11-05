@@ -36,7 +36,7 @@ fictionkin of rook
 
 𖦏
 
-System of 4.
+-
 
 𖦏
 
@@ -44,7 +44,7 @@ dᴏɴ'ᴛ ᴄᴏᴘʏ sᴋɪɴs. ᴀsᴋ ғᴏʀ iɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢ
 
 𖦏
 
-disorders: social anxiety, intermittent explosive disorder, adhd, dyslexia, selective muteness.
+disorders: social anxiety, intermittent explosive disorder, adhd, dyslexia, selective muteness, ocd, Osdd-1b --> (Being professionally diogosned)
 
 𖦏
 
