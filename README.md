@@ -8,21 +8,21 @@ Brainstorm
 
 ╰┈➤
 
-other names: Brainstrom , Local , Location , Cortex 
+Oᴛʜᴇʀ ɴᴀᴍᴇs: Bʀᴀɪɴsᴛʀᴏᴍ , Lᴏᴄᴀʟ , Lᴏᴄᴀᴛɪᴏɴ , Cᴏʀᴛᴇx
 
  ☆
 
-bodily 13
+ʙᴏᴅɪʟʏ 13
 
-they/them [pronous flexiable] 
-
-╰┈➤
-
-use tone tags.
+Hᴇ/Tʜᴇʏ [ᴘʀᴏɴᴏᴜs ғʟᴇxɪᴀʙʟᴇ]
 
 ╰┈➤
 
-fictionkin of Brainstorm IDW
+Usᴇ ᴛᴏɴᴇ ᴛᴀɢs.
+
+╰┈➤
+
+ғɪᴄᴛɪᴏɴᴋɪɴ ᴏғ Bʀᴀɪɴsᴛᴏʀᴍ ɪᴅᴡ
 
 ╰┈➤
 
@@ -34,21 +34,21 @@ dᴏɴ'ᴛ ᴄᴏᴘʏ sᴋɪɴs. ᴀsᴋ ғᴏʀ iɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢ
 
 ╰┈➤
 
-disorders: social anxiety, intermittent explosive disorder, adhd, dyslexia, selective muteness, ocd, Osdd-1b --> (Being professionally diogosned)
+ᴅɪsᴏʀᴅᴇʀs: sᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ, ɪɴᴛᴇʀᴍɪᴛᴛᴇɴᴛ ᴇxᴘʟᴏsɪᴠᴇ ᴅɪsᴏʀᴅᴇʀ, ᴀᴅʜᴅ, ᴅʏsʟᴇxɪᴀ, sᴇʟᴇᴄᴛɪᴠᴇ ᴍᴜᴛᴇɴᴇss, ᴏᴄᴅ, Osᴅᴅ-1ʙ --> (Bᴇɪɴɢ ᴘʀᴏғᴇssɪᴏɴᴀʟʟʏ ᴅɪᴏɢᴏsɴᴇᴅ)
 
 ╰┈➤  
 
-due to my social anxiety i would prefer if you int first, if i don't know you well and i type rudely please forgive me in advance, that rude typing is a cover up for nervousness.
+ᴅᴜᴇ ᴛᴏ ᴍʏ sᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ ɪ ᴡᴏᴜʟᴅ ᴘʀᴇғᴇʀ ɪғ ʏᴏᴜ ɪɴᴛ ғɪʀsᴛ, ɪғ ɪ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ʏᴏᴜ ᴡᴇʟʟ ᴀɴᴅ ɪ ᴛʏᴘᴇ ʀᴜᴅᴇʟʏ ᴘʟᴇᴀsᴇ ғᴏʀɢɪᴠᴇ ᴍᴇ ɪɴ ᴀᴅᴠᴀɴᴄᴇ, ᴛʜᴀᴛ ʀᴜᴅᴇ ᴛʏᴘɪɴɢ ɪs ᴀ ᴄᴏᴠᴇʀ ᴜᴘ ғᴏʀ ɴᴇʀᴠᴏᴜsɴᴇss.
 
 ╰┈➤  
 
-int: anyone rlly ! jst be nice and respectful.
+ɪɴᴛ: ᴀɴʏᴏɴᴇ ʀʟʟʏ ! ᴊsᴛ ʙᴇ ɴɪᴄᴇ ᴀɴᴅ ʀᴇsᴘᴇᴄᴛғᴜʟ.
 
-dni: dont rlly have one,, jst block freely.
+ᴅɴɪ: ᴅᴏɴᴛ ʀʟʟʏ ʜᴀᴠᴇ ᴏɴᴇ,, ᴊsᴛ ʙʟᴏᴄᴋ ғʀᴇᴇʟʏ.
 
 ╰┈➤  
 
-may run or hide in stressful/triggering situations or if overstimulated.
+ᴍᴀʏ ʀᴜɴ ᴏʀ ʜɪᴅᴇ ɪɴ sᴛʀᴇssғᴜʟ/ᴛʀɪɢɢᴇʀɪɴɢ sɪᴛᴜᴀᴛɪᴏɴs ᴏʀ ɪғ ᴏᴠᴇʀsᴛɪᴍᴜʟᴀᴛᴇᴅ.
 
 ╰┈➤⠀ ⠀⠀⠀⠀⠀⠀⠀
 
