@@ -3,8 +3,6 @@
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-<img width="200" height="200" alt="Screenshot 2025-11-19 212412" src="https://github.com/user-attachments/assets/c2e6ec3e-e976-4907-baa9-e537cd8847d7" />
-
 
 Brainstorm
 
@@ -53,4 +51,6 @@ dni: dont rlly have one,, jst block freely.
 may run or hide in stressful/triggering situations or if overstimulated.
 
 ╰┈➤⠀ ⠀⠀⠀⠀⠀⠀⠀
+
+<img width="200" height="200" alt="Screenshot 2025-11-19 212412" src="https://github.com/user-attachments/assets/c2e6ec3e-e976-4907-baa9-e537cd8847d7" />
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
