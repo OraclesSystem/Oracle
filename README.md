@@ -1,15 +1,16 @@
 
-**Skidplate**
+**Brainstorm**
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
+<img width="651" height="651" alt="Screenshot 2025-11-19 212412" src="https://github.com/user-attachments/assets/c2e6ec3e-e976-4907-baa9-e537cd8847d7" />
 
 
-Skidplate
+Brainstorm
 
 ╰┈➤
 
-other names: Skids , Local , Location
+other names: Brainstrom , Local , Location , Cortex 
 
  ☆
 
@@ -23,7 +24,7 @@ use tone tags.
 
 ╰┈➤
 
-fictionkin of Skids IDW
+fictionkin of Brainstorm IDW
 
 ╰┈➤
 
