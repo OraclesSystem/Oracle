@@ -49,6 +49,7 @@ dᴏɴ'ᴛ ᴄᴏᴘʏ sᴋɪɴs. ᴀsᴋ ғᴏʀ iɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢ
 
 ╰┈➤⠀ ⠀⠀⠀⠀⠀⠀⠀
 
-<img width="200" height="200" alt="Screenshot 2025-11-30 182036" src="https://github.com/user-attachments/assets/758a965a-64dd-4744-96b4-7e2ca9e9907b" />
+
+<img width="300" height="300" alt="Screenshot 2025-11-30 182036" src="https://github.com/user-attachments/assets/d75d842a-3d0d-4475-8b8a-dcd9420a8868" />
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
